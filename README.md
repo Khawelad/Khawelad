@@ -2,4 +2,4 @@ I am a self-taught IT enthusiast with a passion for learning and experimenting. 
 
 I Love > Low Poly Procedural Terrain Generation, Triangles & Low Poly Looks
 
-How To Reach Me => Khawelad@gmail.com || OR || khawd 
+How To Reach Me => Khawelad@gmail.com || OR || khawd (Discord)
